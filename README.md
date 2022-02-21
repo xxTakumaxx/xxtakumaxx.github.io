@@ -1,1 +1,0 @@
-# xxtakumaxx.github.io
